@@ -1,0 +1,2 @@
+# survival
+giving taking
